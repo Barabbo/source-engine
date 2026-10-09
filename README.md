@@ -4,3 +4,8 @@ Source code stays private during beta testing; public release planned once stabl
 Follow the project:
 https://t.me/HL_2_PSVitaChat
 https://discord.gg/h83nn6VeA
+
+speciall thanks to 
+
+Barabbo
+lucky13x 
